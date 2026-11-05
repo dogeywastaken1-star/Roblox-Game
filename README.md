@@ -1,1 +1,1 @@
-# Please do not steal any assets from my game nor inspect the code, you're only allowed to play and that's it.
+# Proszę, nie kradnij żadnych zasobów z mojej gry ani nie zaglądaj do jej kodu; możesz jedynie w nią grać – i to wszystko.
